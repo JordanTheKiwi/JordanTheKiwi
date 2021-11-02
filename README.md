@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JordanTheKiwi
-- 👀 I’m interested in footbsll, coaching, teaching and creating things
+- 👀 I’m interested in football, coaching, teaching and creating things
 - 🌱 I’m currently learning photoshop and I am doing the odin project
 - 💞️ I’m looking to collaborate on nothing yet
 - 📫 How to reach me jordanthekiwi@gmail.com
